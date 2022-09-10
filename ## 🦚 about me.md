@@ -1,6 +1,4 @@
 ## 🦚 about me 
-### justice on medium 
-- [](https://medium.com/@666justice)
 ### 💡 demonstrations
 - I am currently working on the rights of people with autism
 ### 🔧my ideas 
